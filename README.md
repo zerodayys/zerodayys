@@ -15,6 +15,3 @@
 <br>
   <sub> i block freely :) </sub>
 
-  <img src="https://64.media.tumblr.com/7999b99c3d88a2b633de24bdbc811fcc/0a844093c4702aee-3f/s100x200/c2df61b854e82858c3d3165ff9e2f57f4c9a6b76.pnj" width=200 height=300>
-    
-
