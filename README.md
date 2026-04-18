@@ -12,7 +12,7 @@
 
 <sub> anti-censorshipㅤ proficㅤㅤfourteen ㅤ</sub>
 <br>
-  <sub> idc if tcc follow me ㅤ we probably wont become friends if u do. im not into that.ㅤㅤcaldre int plsㅤ</sub>
+  <sub> idc if tcc follow me ㅤ we probably wont become friends if u doㅤㅤcaldre int plsㅤ</sub>
   <br>
   <sub> i dont condone my fav characters actions irlㅤㅤpls dont ask if i do </sub>
 
