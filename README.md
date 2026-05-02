@@ -1,4 +1,4 @@
-  <p align="center"> <dir="auto"> <img src="https://komarev.com/ghpvc/?username=zerodayys&label=𝄞&color=fade89&style=flat&base=2088"> </dir> </p>
+  <p align="center"> <dir="auto"> <img src="https://komarev.com/ghpvc/?username=zerodayys&label=𝄞&color=faf689&style=flat&base=2088"> </dir> </p>
   
   <p align="center">ㅤ <img src="https://i.pinimg.com/originals/8d/99/68/8d9968b08fec7c5faefd19026a0e40b8.gif" width=400 height=300>ㅤ</p>
 
