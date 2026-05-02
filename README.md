@@ -1,6 +1,6 @@
   <p align="center"> <dir="auto"> <img src="https://komarev.com/ghpvc/?username=zerodayys&label=𝄞&color=FFD20F&style=flat&base=2088"> </dir> </p>
   
-  <p align="center">ㅤ <img src="https://i.pinimg.com/1200x/9b/a3/5b/9ba35b6d23a575ca816fa27d9b4e4f84.jpg" width=400 height=300>ㅤ</p>
+  <p align="center">ㅤ <img src="https://i1-e.pinimg.com/1200x/65/a1/bc/65a1bc1102d05f5880230db2af395ee0.jpg" width=400 height=300>ㅤ</p>
 
  <p align="center"> <sub> undiagnosed sysㅤㅤilmbf </sub>
 
