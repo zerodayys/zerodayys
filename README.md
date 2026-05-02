@@ -1,6 +1,6 @@
-  <p align="center"> <dir="auto"> <img src="https://komarev.com/ghpvc/?username=zerodayys&label=𝄞&color=FFD20F&style=flat&base=2088"> </dir> </p>
+  <p align="center"> <dir="auto"> <img src="https://komarev.com/ghpvc/?username=zerodayys&label=𝄞&color=fade89&style=flat&base=2088"> </dir> </p>
   
-  <p align="center">ㅤ <img src="https://i1-e.pinimg.com/1200x/65/a1/bc/65a1bc1102d05f5880230db2af395ee0.jpg" width=400 height=300>ㅤ</p>
+  <p align="center">ㅤ <img src="https://i.pinimg.com/originals/8d/99/68/8d9968b08fec7c5faefd19026a0e40b8.gif" width=400 height=300>ㅤ</p>
 
  <p align="center"> <sub> undiagnosed audhdㅤㅤilmbf </sub>
 
